@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SalihCanAkbalik
+- 👀 I’m interested in anything with technology
+- 🌱 I’m currently learning what i want.
+- 📫 How to reach me : akbalik_can@hotmail.com
